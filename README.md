@@ -2,7 +2,7 @@ Jayden / rebel / puppychi.
 
 ![Image](https://github.com/user-attachments/assets/f08dce40-4887-4908-892f-1f3543d5a48a)
 
-꒱ _ʙàɪ ᴘɪɴ ₊˚⊹
+꒱  ᴘɪɴ ₊˚⊹
 ⟡
 [Review of my OC]
 -_
